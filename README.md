@@ -1,1 +1,2 @@
-# the-regressed-mercenarys-machinations
+# The Regressed Mercenary’s Machinations
+Gisel Perdium est le roi des mercenaires. Il s'est lancé dans la guerre pour venger la destruction de sa famille. Mais il finit par trouver la mort lors d'une ultime bataille, regrettant amèrement de ne pas avoir mené sa vendetta jusqu'au bout. Cependant, il se réveille des années plus tôt, dans un corps jeune. Devant lui se dresse son territoire, qui n'est pas encore tombé. Revenu dans le passé, Gisel compte bien utiliser ce qu'il sait pour empêcher la mort de sa famille et pour prendre enfin la vengeance qu'il attendait tant.
